@@ -1,0 +1,2 @@
+# Severa-AI
+AI APP FOR STUDENTS
